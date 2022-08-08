@@ -1,2 +1,2 @@
-# 0731bushushiyann.io
+# just for you.
 
